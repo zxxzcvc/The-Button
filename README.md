@@ -29,7 +29,9 @@ And more, but im not gonna list every single feature.
 https://guns.lol/darkbeach
 
 
-# Keyless
+# Also join my discord server, updates have moved there
+
+https://discord.gg/RdfYM9eHwj
 
 
 The best script ever made ;3
